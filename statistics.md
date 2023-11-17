@@ -662,7 +662,7 @@ Play the Video:
 
 
 
-
+[![Central Limit Theorem: ](https://img.youtube.com/vi/YAlJCEDH2uY&ab_channel=StatQuestwithJoshStarmer)](https://www.youtube.com/watch?v=YAlJCEDH2uY&ab_channel=StatQuestwithJoshStarmer)
 
 
 https://www.youtube.com/watch?v=YAlJCEDH2uY&ab_channel=StatQuestwithJoshStarmer
@@ -675,7 +675,7 @@ https://www.youtube.com/watch?v=YAlJCEDH2uY&ab_channel=StatQuestwithJoshStarmer
 Central Limit Theorem: 
 
 
-
+[![Central Limit Theorem: ](https://img.youtube.com/vi/YOUTUBE_VI...)](https://www.youtube.com/watch?v=YOUTU...)
 
 
 

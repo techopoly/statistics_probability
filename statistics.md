@@ -665,6 +665,7 @@ Play the Video:
 
 
 
+https://www.youtube.com/watch?v=YAlJCEDH2uY&ab_channel=StatQuestwithJoshStarmer
 
 
 
